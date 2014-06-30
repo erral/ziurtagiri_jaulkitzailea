@@ -1,2 +1,0 @@
-ziurtagiri_jaulkitzailea
-========================
